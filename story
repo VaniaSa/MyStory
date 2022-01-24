@@ -1,0 +1,1 @@
+Cinderella was a young girl who lived with he stop-mom and step-sisters. 
